@@ -1,0 +1,1 @@
+- [Scrapping circuit boards: This is why I ALWAYS DEPOPULATE THEM!!](https://youtu.be/TuEjUAq9-6k)
