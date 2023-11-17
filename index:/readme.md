@@ -1,0 +1,4 @@
+- [3000 Lbs Of Copper Busbar, Scrapping Transformers For Copper, & $30,000 Of New Electrical Gear Pt.1](https://youtu.be/bAJyaqAADVw)
+- [3000 Lbs Of Copper Busbar, Scrapping Transformers For Copper, & $30,000 Of New Electrical Gear Pt. 2](https://youtu.be/ttZOmfjowuc)
+- [HOW TO SCRAP AN ELECTRIC MOTOR!](https://youtu.be/PLsbQAjCKTY)
+- [Ewaste Scrapping - Make the Most Money on Computer Power Supplies](https://youtu.be/DlmIhuSUFhc)
