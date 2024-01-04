@@ -1,3 +1,5 @@
+# sch:
+https://www.youtube.com/@thubprint/search?query=wire%20stripper
 - [Is It Worth Stripping Copper Wire For Scrap? Should You Buy a Stripper?](https://youtu.be/K2IApTCFjE4)
 
 # Buying Guide:
