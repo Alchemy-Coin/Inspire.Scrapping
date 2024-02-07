@@ -3,7 +3,8 @@
 
 Note: These were Drained & Empty of Oil!
 
-Starting Weight: 732
+## Weight
+Starting: 732
 Metal:              Weight:   Percent
 - Prepared Steel:     196
 - Tin Shred:          482
@@ -12,4 +13,7 @@ Metal:              Weight:   Percent
 - Aluminum: 
 - Oil
 
-196+482+52
+## Money:
+- Cost: 109
+- Revenue: 255
+- Profit: 146
