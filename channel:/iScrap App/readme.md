@@ -7,3 +7,4 @@ index:
 - [Types of Brass & Separating Them](https://youtu.be/yxGUl7h-hP4)
 - [Scrap Secrets: Sorting Your Brass & Bronze Red Brass](https://youtu.be/eJ9ZYs0Ym4g)
 - [How To Tell If It Is Copper Or Brass](https://youtu.be/-Gll93gZf2E)
+- [Taking Apart An Air Conditioner for Scrap Copper & Aluminum](https://youtu.be/N_jrvvzIfaQ)
