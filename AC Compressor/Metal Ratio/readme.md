@@ -15,6 +15,6 @@ Cost: $450
 
 Revenue: $1000
 - Steel: $220
-- Copper: 350
+- Copper: ?
 
 Profit: 550
