@@ -1,0 +1,3 @@
+- [how to strip radiators the easy way removing copper. volume warning](https://youtu.be/_PylbyIKqcE)
+- [How To Remove Copper From Air Conditioner Radiators in no time](https://youtu.be/k2FlOoPP14E)
+- [Taking Apart An Air Conditioner for Scrap Copper & Aluminum](https://youtu.be/N_jrvvzIfaQ)
