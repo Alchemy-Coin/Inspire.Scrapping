@@ -1,1 +1,2 @@
-[Massive Copper Pipe Breakdown - The Lost Footage Pt. 2](https://youtu.be/fCXK6Fch8cI)
+- [Massive Copper Pipe Breakdown - The Lost Footage Pt. 2](https://youtu.be/fCXK6Fch8cI)
+- [3000 Lbs Of Copper Busbar, Scrapping Transformers For Copper, & $30,000 Of New Electrical Gear Pt.1](https://youtu.be/bAJyaqAADVw)
