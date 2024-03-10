@@ -1,0 +1,1 @@
+- [I Bought 2570 lbs of Transformers to Scrap for Copper!](https://youtu.be/XGZ6-4LWx7M)
